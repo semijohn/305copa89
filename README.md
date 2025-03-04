@@ -8,8 +8,6 @@ Builds Brand Authority: Getting backlinks from trusted, well-known websites can 
 Fosters Relationships: Link building often involves reaching out to other website owners or content creators, which can lead to valuable partnerships, collaborations, and exposure in your industry.
 
 <a href="https://rmobile-campaign.com/">rmobile-campaign</a>
-<a href="http://hausrealisierungen.de">hausrealisierungen.de</a>
-<a href="http://moderatschlage.de">moderatschlage.de</a>
 
 <a href="https://personalgym-realbody.com/">personalgym-realbody</a>
 
